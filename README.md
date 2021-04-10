@@ -1,2 +1,0 @@
-# Local-repositoryy
-Araya danprachum
